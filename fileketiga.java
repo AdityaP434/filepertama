@@ -1,0 +1,2 @@
+bissmillahirrohmanirrohim
+masih sama bro hehe
